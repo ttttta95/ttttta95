@@ -2,4 +2,4 @@
 
 > [My velog](https://velog.io/@lifeislikeyoon/posts)
 
-다양한 프로젝트에 흥미를 느끼지만, 시작한 일은 끝까지 책임감 있게 마무리합니다
+의견을 경청하여 더 나은 결과를 위해 함께 노력합니다
